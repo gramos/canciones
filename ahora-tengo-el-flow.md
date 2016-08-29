@@ -31,9 +31,3 @@ disparo mi lirica no me arrepiento
 Y ahora tengo el flow
 también tengo el don
 
-Y para ir terminando te voy invitando
-mientras voy rimando
-no pierdas mas tiempo unite a este bando
-
-Y ahora tengo el flow
-también tengo el don
