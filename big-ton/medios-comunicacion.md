@@ -1,6 +1,8 @@
 Medios comunicación
 ===================
 
+[ Solm - Dom - Rem ]
+
 Escriben mentiras cambian las historias
 no tienen problemas te roban la memoria 
 formadores de opiones  
@@ -13,13 +15,12 @@ repiten y repiten mienten.
 
 Medios comunicación
 no quiero que mi vida controlen
-Medios comunicación
-no quiero que mi vida me roben
+Bis..
 
 Medios comunicación...
 
 No les interesa mostrar la realidad
-no les importa nada no tienen dignidad
+no les importa nada es pura maldad
 siempre listos y responden
 a la orden del poder
 
@@ -30,8 +31,6 @@ repiten y repiten mienten.
  
 Medios comunicación...
 
-Medios comunicación...
-
 No dejes que te cambien todas las historias
 no repitas lo que dicen, escucha bien 
 saca tus propias conclusiones
@@ -39,10 +38,9 @@ crea propios pensamientos
 
 Muestran lo que les conviene
 dicen lo que quieren  
-cambian todo lo que pueden
+ cambian todo lo que pueden
 manipulan y repiten tranzan.
 
 Medios comunicación...
-
 Medios comunicación...
 

@@ -1,10 +1,15 @@
+AL fin viernes
+==============
+
+[ Sol - Do - Re - Do ] 
+
 Tuve una semana
 un poco agitada
 tuve una semana
 muy complicada
 
 Desde el lunes muy temprano
-yo NO RECUERDO nada
+yo no recuerdo nada
 me quedé tranquilo
 sin nada que apurar
 
@@ -18,7 +23,7 @@ Bis...
 Desde el lunes temprano
 ya no recuerdo nada
 olvidé mi deudas,
-y todos mis pr oblemas.
+y todos mis problemas.
 
 Jugué a los tundercats,
 también a la escondida
@@ -31,16 +36,16 @@ Alfin es viernes me voy de la abuela
 alfin es viernes no tengo que ir mas a la escuela
 
 Tuve una semana muy agitada
-me encontré la rubia tarada
+me encontraba la rubia tarada
 me trató de loco 
-y le dije no me grites mas así
+y yo le dije no me grites así
 
-Le expliqué que no sabía quien era
-entendí que algo nos unía
+Le expliqué que ya no sabía quien yo era
+entendía que algo nos unía
 fue cuando me dijo
 vamos querido que ya está la cena
 
-no puedo recordar más ese pasillo
+No puedo recordar más ese pasillo
 cuando entraba a la casa
 mas cosas recordaba
 lo que eso implicaba y más era para mí
